@@ -1,3 +1,4 @@
+![텍스트와 AnA로고](https://github.com/user-attachments/assets/b7e61496-3152-4285-8d99-281d65ce6550)
 > **어두운 곳**에서<br/>
 > 세상을 **밝게 만드는** 동아리
 >
